@@ -37,5 +37,5 @@ J'ai 25 ans et j'ai toujours été passionné par l'informatique c'est donc tout
 
 **Favorite GIF:**
 
-![funny](image.png)
+![kids](https://static.hitek.fr/img/actualite/tumblr-mvzubdmxxs1r7w8cbo1-400-jpg.gif)
 
